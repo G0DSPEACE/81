@@ -1,4 +1,39 @@
 # 81
 <img src="https://img.sanishtech.com/u/bd07d1429dc475860a9547e0144bd5f7.png" alt="1000018165" loading="lazy" style="max-width:100%;height:auto;">
 
-.                       <a href="https://8k1bun.atabook.org/">A T A</a>                    
+
+<p align="center">
+1231  
+    &nbsp;&nbsp;&nbsp;
+  ×
+  &nbsp;&nbsp;&nbsp;
+  0526
+
+
+<p align="center">
+  <a href="https://8k1bun.atabook.org/">a ta</a>
+     &nbsp;&nbsp;&nbsp;
+  &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+  안평화  
+    &nbsp;&nbsp;&nbsp;
+  ×
+  &nbsp;&nbsp;&nbsp;
+  주인철
+  &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+    &nbsp;&nbsp;&nbsp;
+  <a href="https://8k1bun.straw.page">str w</a>
