@@ -32,4 +32,4 @@
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
     &nbsp;&nbsp;&nbsp;
-  <a href="https://8k1bun.straw.page">str w</a>
+  <a href="https://k1bun.straw.page">str w</a>
